@@ -4,6 +4,6 @@
 
 <p align="center">ㅤ ㅤminorㅤ&&ㅤany prnsㅤ;ㅤeng / fil . GMT +8 </p>
 <p align="center">ㅤ ㅤ ㅤ<a href="https://aristophonic.atabook.org/">atabook</a>
- ㅤ ㅤ ㅤㅤ<img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/4d6db8a8-0808-432f-a2ea-6988545ed674" /> ㅤㅤㅤㅤㅤ<a href="https://rentry.co/twofans">rentry</a></p>
+ ㅤ ㅤ ㅤㅤ<img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/4d6db8a8-0808-432f-a2ea-6988545ed674" /> ㅤㅤㅤㅤㅤ<a href="https://rentry.co/boomboxified">rentry</a></p>
 <p align="center"><img width="500" height="30" alt="image" src="https://github.com/user-attachments/assets/9742cf31-a4c8-40fc-a91b-8353bbf10e28" />
 </p>
